@@ -35,8 +35,22 @@ This keyboarded and encoded edition of the
 ##Content Summary##
 
 #####Front#####
-Three excellent points of Christian doctrine I. The nativity of our Lord Iesus Christ. II. His bitte
+
+1. TO THE RIGHT HONORABLE DAVID AIKINHEID LORD Provest: And to the right Worshipfull Robert Dowgall, Iohn Maknaght, William Dick, and Henry Morison Baillies: Iohn Byres Deane of Gild, Peter Somervell Thesaurer, and to the remnant of the Councill, representing the body of the good Town of EDINBVRGH.
+
+1. To the Reader.
+
+1. LECTORI & AVTHORI.
+
+1. Ad D. PETRVM HVATTVM Sermones editurum.
+VErbis Suada tuis, sensu Hermes ludit HVATTE,Sicque tuum plenum est numine opus duplici.Dulce sonant
 #####Body#####
+THE FIRST SERMON.ZECHARIAH, 3. Chap. 8. 9. and 10. verses.8Heare now O Iehoshua the high Priest, tho
+    _ THE FIRST SERMON.
+
+    _ THE SECOND SERMON.
+
+    _ THE THIRD SERMON.
 
 **Types of content**
 
